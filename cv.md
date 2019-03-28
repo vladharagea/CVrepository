@@ -33,5 +33,31 @@ Studies
  - Economy of Services
  - Quality Management
 
+#### Other Knowledge and Abilities
+
+
+##### Languages:
+ 	     Romanian (Native tongue), English, German, 
+
+
+##### Computer Skills: 
+    • MS Office-Paket (Word, Power Point, Excel)
+    • Proficient in al variants of Windows
+    • Proficient in all variants of search engines	
+
+##### Abilities:
+-  Initiative
+- Discipline
+- Punctuality
+- Analytic spirit
+- Communication skills
+- Emotional stability
+- Self-control
+- Orientation towards the customer and solver of costumer problems and questions
+- Team spirit
+- The ability to work under stressful conditions
+- Team player,
+- Very adaptable!
+
 
 
